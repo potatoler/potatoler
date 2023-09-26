@@ -1,4 +1,4 @@
 ### Here's potatoler!
-- OIer💻, Anime-lover📺, and cycling-lover🚴‍♂️.
+- exOIer💻, acgnLover📺, and cyclingLover🚴‍♂️.
 - Here's my blog [potatoler's space](https://potatoler.ren/), warmly welcome!🤗
-- Currently studying in 🏫SDFZ.
+- TGUer.
